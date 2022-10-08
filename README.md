@@ -1,1 +1,1 @@
-# rick-roll
+WARING DONT OPEN .BAT FILE
